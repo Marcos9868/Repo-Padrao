@@ -1,1 +1,1 @@
-O curso de Git da Hiring Coders está excelente
+Está aula é muito bacana, aprendi bastante coisa.
